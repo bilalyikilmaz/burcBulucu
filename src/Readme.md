@@ -1,0 +1,1 @@
+![burcBulucu.jpg](..%2F..%2F..%2F..%2FDownloads%2FburcBulucu.jpg)
